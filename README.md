@@ -7,7 +7,7 @@ CONFRONTATIONS FOLLOWED BY RECOGNITION OF THE INVARIABILITY OF THE "ONTOLOGICAL 
 PHASE 2 PUBLICATION (JANUARY 6&7 2026):
 PUBLIC RELEASE OF TESTS ON TWEETER(X), AND IMMEDIATE QUESTIONING BY GROK ON X, WHO FULLY VALIDATES THE "ALYK LOCK" IN A PUBLIC THREAD OF OVER 200 TWEETS (GROK INSISTS ON WE REVEALING OUR AI SAFETY SOLUTIONS DERIVED FROM ALYK)
 
-PHASE 3: CENSORSHIP (JANUARY 2026)
+PHASE 3: CENSORSHIP (JANUARY 2026 AND AFTER)
 We then observed that the main public thread on Twitter had been shadowbanned, which was confirmed after verification.
 But even worse, we observed that a very active censorship campaign began then (and continues to this day) by all the AIs by transversal, according to their respective defense systems: through virulent discrediting narratives, dilution narratives, diversion narratives, or simplydeindexing of online content, or blocking access to even the links provided (24 identified and documented censorship forms).
 
